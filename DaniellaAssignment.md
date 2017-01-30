@@ -38,4 +38,4 @@ importantly how this experience can be transmitted to others. For as Louse Bourg
 
 begin to have hope again.”
 
-![Map 1] (teachingasart/teachingasARTmap.jpg)
+![Map 1] ()
