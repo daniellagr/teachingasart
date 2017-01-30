@@ -37,3 +37,5 @@ importantly how this experience can be transmitted to others. For as Louse Bourg
 "When you admire something you become larger than yourself. When you witness beauty, you
 
 begin to have hope again.”
+
+![Map 1] (teachingasart/teachingasARTmap.jpg)
