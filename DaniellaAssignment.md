@@ -2,6 +2,9 @@
 itp2017
  
  
+ ![Map 1] (https://raw.githubusercontent.com/daniellagr/teachingasart/master/colors_608.jpg)
+ 
+ 
  First encounter with an idea:
 
 At the age of seven my mother sent me a postcard describing a mercury fountain.
