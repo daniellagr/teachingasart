@@ -2,7 +2,7 @@
 Curriculum 
 
 
-![Map 1]
+![Map 1] (https://raw.githubusercontent.com/daniellagr/teachingasart/master/FullSizeRender.jpg)
 
 It is said that Plato put an inscription at the entrance to his academy, reading: “Let no on enter who is not a geometrician.” There was also a second inscription above the entrance, stating that whoever was unwilling to become entangled in love affairs with other visitors in the garden of theory should keep away. 1 Love and geometry seems like an interesting starting point for a curriculum, for a journey. 
 Geometry, to question the outside. Love, to question the inside. Fundamentally, an attempt to render visible the infinite interconnections of space, therefore an opportunity to see education or knowledge as a source of infinite possibilities. 
