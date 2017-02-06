@@ -1,5 +1,4 @@
 
-Curriculum 
 
 
 ![Map 1] (https://raw.githubusercontent.com/daniellagr/teachingasart/master/FullSizeRender.jpg)
@@ -11,6 +10,8 @@ The core being: to be honest equals to have no fear, no fear equals freedom.
 Revolving around the core one can find the learning objective to this journey: To acquire the abilities to formulate the right questions that can lead to your own discoveries. 
 “One is better served by gathering knowledge from a combination of the disciplines-from which artists constructs their vocabularies in different combinations depending on their interests and needs. “2
 I would like to construct a vocabulary with the following(never finite) concepts:
+
+![Map 1] (https://raw.githubusercontent.com/daniellagr/teachingasart/master/IMG_8533.JPG)
 
 Philosophy/Anthropology (learn to wonder, to explore human connections) 
 
