@@ -127,6 +127,23 @@ White | Yes     Squares | Lines     Love | Always
   
   
   
+  This workshop is inspired in a manifesto that I wrote a couple of years ago along an installation piece that I always envisioned as an education or communal learning/ experimental experience.  
+  
+  " I would like to experiment with a complexity of interconnections by linking and exploring dialogues across the globe. Generating a space where individuals can interpret and represent their own notions of raw pure emotion, a poetic body wearing the traces of its history through different mediums of communication, technology, craft and experience. I see this experiment as an anthropological study, for it brings into being a possible locality, filled up with traces of human thought, reflections and interpretations coming from internal loci; thus producing a network of thought in constant transformation. This malleability can be mapped and I suspect it has musicality.
+The experiment, a collaborative work based on observation, to connect intensely disparate planes of existence in any given numbers. It is not particularly a chance operation but a process of experimentation. 
+-The gap between art and life with multiple possibilities of being narrowed down.-
+
+This project is visibly linked to specific words but not framed or limited by them. The concepts of ‘love’ and ‘manifesto’ are intended to be used as vehicles, in order to find a common space, a position of vicinity in which individuals can find themselves face to face with the possibility of being art."
+
+
+
+
+References/Inspiration: 
+UltraRed (http://www.ultrared.org/mission.html)
+Hans Haacke
++ more
+
+  
                                                                  
                                                                  
                                                                  
