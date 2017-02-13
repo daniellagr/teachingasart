@@ -41,32 +41,45 @@ There is white, and a systematizing confusion.
 There is civilization : There are Drugs, alcohol, engines of war, prostitution, machines and machine slaves, low wages, bad food, bad taste, prisons, reformatories, lunatic asylums, divorce, perversion, brutal sports, suicides, infanticide, Hollywood, quackery, demagogy, strikes, lockouts, revolutions, putsches, colonization, electric chairs, guillotines, sabotage, floods, famine, disease, gangsters, money barons, bull fighting, fashion shows, poodle dogs, condoms, pessaries, syphilis, gonorrhea, insanity, neurosis, etc., etc.
 
 There is love.  There is  art. Yes, there is love, art, life and other demons. 
+
 Flamingos and zebras too.
+
 Art that triggers, that cares, that makes you believe in yourself and in others and in whatever you want.
 Art that opens eyes and emotions to possibilities; Art that could be read and felt even by those who are not in the alphabetical system.
+
 Art that feels like the beginning of the morning when you have fallen in love, like opening a window and smelling luminosity. 
 Art that is as didactic and primary, yet intense and elaborate as a kiss; Art that wants to kiss slowly and passionately.
 Art that rejoices in the dialogue with life, and suffers along and makes some melodic colorful noise too; fearless of piercing through the hallucinations that nowadays pass for reality.
+
 Art that is human; with all errors and perfections, with boundaries, but Art that observes and acknowledges the importance of observation; an anatomy of the soul, always pushing the limits.
 Art that accepts differences of all kinds, but is into the de-luxe  taste of love!
 Art that can’t live without imagination and love making.
+
 Art, which  has no intention to be called Art in order to belong; it needs no ideology, label, or institution. 
 It can be given any desired name, yes, it is also an invitation to play. 
 I will call it art for practical purposes, and for my personal desire to believe it is what it is.
 Once a magical-religious artifact then a technique for imitating reality, Art is now seen as an instrument towards modifying consciousness and organizing new modes of sensibility. 
+
+
 This art is chameleonic enough to accomplish its major goal: To transform and help.  
 Take these words as you please, for they need no avant-garde explanation.
+
 Dynamite! knowledge remains open-ended and mysteriously infinite, available for all who allow themselves to perceive. 
 There is no feasible scheme for universal liberation, for good and bad, for truth or happiness. 
 Challenge that with action, we need gut and significance! 
+
 Men remain awaiting for miracles, for a miracle that would reveal the essence of things. 
 How different would it be, if men were able to see miracles as always happening, if they discover the joyful enchantment of life instead of the unadventurous task of blindly searching for truths. Like Carnival, the possibilities of the marvelous, which lie concealed in the commonplace.
+
 The symbol of desire versus the rigid punctilio; “everyday that we fail to live out the maximum of our potentialities we kill the Shakespeare, Dante, Homer, Christ which is in us. Every day that we live in harness with the woman whom we no longer love we destroy our power to love and to have the woman whom we merit. The age we live in is the age which suits us;” 
 but there is always space for transformation, for a business suit and equations also fit into this art form, we encourage an Excel Manifesto!
+
 A melodic outburst of colors, sounds, thoughts, beliefs and dreams.. What we see, what we think we see and what we think we know –all in the thin interconnection of space. 
 It is the construction of a democratic space by modes of sensibility what must be pursued; and just as dance, empowers the human being, art breaks down barriers between people,
 carnival builds its own world versus the official world, the realization of the power inherited in human sensibility is the best weapon for social change.
+
 No daring is fatal!
+
 To fly while dancing, to feel like flying while dancing passionately in the middle of the streets, being whatever or whomever you want to be. The importance is in feeling it through your veins, the full potential of life inside you; uninhibited and free, with all of your heart, with your heart in your hands.
 If there is one specific point, one main intention of this Art, 
 is precisely for everyone, 
@@ -74,6 +87,7 @@ really everyone to experience this feeling.
 
 
 Rastreando  Adentro del ser cosmico superior. Nadando en las orillas del alma Con savia que alimenta la alegria. Haciendo de la vida o de la muerte, algo hermoso. Donde esta el amor? En este navio solitario Lejos de todo Infinito como el mar? siempre en mi corazon.
+
 
 Seeking
 Inside the superior cosmic being,
@@ -86,6 +100,7 @@ In this lonely vessel
 Far from everything
 Infinite like the sea?
 Always in my heart.
+
 
 
 The Political Agenda of an Artist?
