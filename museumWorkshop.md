@@ -122,6 +122,16 @@ Load your words and actions with dynamite
 White | Yes     Squares | Lines     Love | Always
                                                                  Please, echo pure.
                                                                  
+ 
+  ![Map 1] (https://raw.githubusercontent.com/daniellagr/teachingasart/master/ORDENM-M_1114.jpg)
+  
+  
+  
+                                                                 
+                                                                 
+                                                                 
+                                                                
+                                                                 
                                                                  
                                                                  
 
