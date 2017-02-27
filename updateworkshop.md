@@ -9,4 +9,7 @@
  ![Map 1] (https://raw.githubusercontent.com/daniellagr/teachingasart/master/Screen%20Shot%202017-02-27%20at%204.14.45%20PM.png)
 
 
+![Map 1] (https://raw.githubusercontent.com/daniellagr/teachingasart/master/Screen%20Shot%202017-02-27%20at%204.24.13%20PM.png) 
+
+
 
