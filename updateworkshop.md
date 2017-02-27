@@ -15,7 +15,7 @@
 ![Map 1] (https://raw.githubusercontent.com/daniellagr/teachingasart/master/IMG_20170226_000707.jpg)
 ![Map 1] (https://raw.githubusercontent.com/daniellagr/teachingasart/master/IMG_20170226_002438.jpg)
 
-
+![Map 1] (https://raw.githubusercontent.com/daniellagr/teachingasart/master/IMG_20170226_002427%20(1).jpg)
 
 
 
