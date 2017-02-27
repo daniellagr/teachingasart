@@ -1,3 +1,4 @@
+![Map 1](https://raw.githubusercontent.com/daniellagr/teachingasart/master/IMG_8916.JPG)
 
 
 We were ants, going through a maze looking for a place to explore.
