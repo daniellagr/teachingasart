@@ -1,6 +1,7 @@
 ![Map 1](https://raw.githubusercontent.com/daniellagr/teachingasart/master/IMG_8916.JPG)
 
 
+
 We were ants, going through a maze looking for a place to explore.
 Finally we found a spot. A cold but familiar enviornment. 
 We went back to being human. Mithru opened his computer and showed me lines, grids, patters, numbers - - -> I only saw beauty (Therefore I was amazed.)
@@ -12,3 +13,5 @@ I wanted to understand his dialogue within code and visualize it.
 It was crucial because he understood exactly what I needed and we began a process of revealing the invisible connections in space via
 beauty and math. 
 
+
+![Map 1] (https://raw.githubusercontent.com/daniellagr/teachingasart/master/LeWitt-9.png)
