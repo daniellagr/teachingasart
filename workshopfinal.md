@@ -4,4 +4,4 @@
 
 ![Map 1] (https://raw.githubusercontent.com/daniellagr/teachingasart/master/workshopfly.png)
 
-<iframe src="https://docs.google.com/presentation/d/1eA52ng5wGS-OILtWmUxd6MUiXIohDbPo-fRsR2LGLDY/embed?start=false&loop=false&delayms=5000" frameborder="0" width="960" height="569" allowfullscreen="true" mozallowfullscreen="true" webkitallowfullscreen="true"></iframe>
+![Map 1] <iframe src="https://docs.google.com/presentation/d/1eA52ng5wGS-OILtWmUxd6MUiXIohDbPo-fRsR2LGLDY/embed?start=false&loop=false&delayms=5000" frameborder="0" width="960" height="569" allowfullscreen="true" mozallowfullscreen="true" webkitallowfullscreen="true"></iframe>
