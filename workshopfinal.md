@@ -1,3 +1,3 @@
 
-![Map 1] (https://raw.githubusercontent.com/daniellagr/teachingasart/master/1workshop.gif)
-![Map 1](https://raw.githubusercontent.com/daniellagr/teachingasart/master/IMG_9160.JPG)
+![Map 1] (https://raw.githubusercontent.com/daniellagr/teachingasart/master/workshopthinng2.gif)
+![Map 1](https://raw.githubusercontent.com/daniellagr/teachingasart/master/workshopthinkngprocess.gif)
